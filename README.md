@@ -19,9 +19,9 @@ The picture from reviews of Wealthorion looks grounded and positive:
 Criticism online is minimal and minor. The overall tone of reviews: *“The broker doesn’t get in the way of earning; rather, it helps avoid obvious mistakes.”*  
 
 To study reviews of Wealthorion in more detail, check out platforms like:  
-- **Solarcoin**  
-- **Reddit**  
-- **Medium**  
+- [Medium](https://medium.com/@Wealthorion/wealthorion-reviews-overview-of-a-reliable-broker-70cf7f0dc047)  
+- [Blogspot](https://wealt-horion.blogspot.com/2025/08/wealthorion-reviews-does-broker-pay-or.html)  
+- [HackMD](https://hackmd.io/@h76omfOWS-yrD4k4j9eR8w/H1RNkdVFge)  
 
 ---
 
